@@ -1,4 +1,4 @@
-# Beyond Hearing 🎧
+# Beyond Hearing 
 
 **Hearing difficulties and depressive symptoms: the role of age, socioeconomic status and smoking habits.**
 
